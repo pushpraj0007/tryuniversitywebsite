@@ -1,1 +1,1 @@
-# tryuniversitywebsite
+# tryuniversitywebsite.githuh.io
